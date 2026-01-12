@@ -1,1 +1,1 @@
-# privacy-policy.github.io
+# Privacy Policy
